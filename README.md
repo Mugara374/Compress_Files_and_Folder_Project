@@ -6,4 +6,4 @@ Mbonyumugara Mushi,
 Geofrey Tumwesigye,
 Enock Uwamahoro,
 Ajok Atem,
-Heritier Sebageni
+Heritier SEBAGENI
