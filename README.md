@@ -8,3 +8,4 @@ Geofrey Tumwesigye,
 Enock Uwamahoro,
 Ajok Atem,
 Heritier SEBAGENI
+Enzo Batungwanayo
